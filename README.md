@@ -1,1 +1,1 @@
-# www.hmj.nz
+# hmj.nz
